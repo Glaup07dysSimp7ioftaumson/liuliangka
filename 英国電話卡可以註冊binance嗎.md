@@ -20,6 +20,6 @@
 
 最后，我想说的是，无论你是新手还是老手，保持学习的态度始终是最重要的。在这个快速发展的行业中，只有不断学习新知识，才能更好地应对未来的挑战。希望这篇文章能对你有所帮助，祝你在数字货币的世界里取得成功！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
