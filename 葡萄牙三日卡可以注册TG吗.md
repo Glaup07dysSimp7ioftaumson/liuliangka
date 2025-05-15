@@ -1,4 +1,4 @@
-# 葡萄牙三日卡可以注册TG吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 葡萄牙三日卡可以注册TG吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好，今天咱们聊聊一个很多人都关心的问题——葡萄牙三日卡能不能用来注册Telegram（简称TG）。如果你是刚到葡萄牙旅游或者工作，手头可能只有这张三日卡。那么，这张卡是否能让你顺利进入TG的世界呢？让我们一起来看看。
 
@@ -52,4 +52,4 @@
 
 最后，希望这篇文章对你有所帮助！如果你还有任何疑问，欢迎随时留言交流。祝大家都能愉快地使用Telegram，享受便捷高效的沟通体验！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

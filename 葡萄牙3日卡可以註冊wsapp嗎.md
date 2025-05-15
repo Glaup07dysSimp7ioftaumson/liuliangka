@@ -1,4 +1,4 @@
-# 葡萄牙3日卡可以注册WSApp吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 葡萄牙3日卡可以注册WSApp吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 最近，不少朋友在讨论关于葡萄牙3日卡是否能用来注册WSApp的问题。这个问题听起来可能有点复杂，但实际上它涉及到几个方面：什么是葡萄牙3日卡？WSApp是什么？以及这两者之间是否存在技术上的障碍？
 
@@ -16,4 +16,4 @@
 
 总之，葡萄牙3日卡完全可以用来注册WSApp，只要你具备必要的网络条件并且遵循正确的流程即可。希望这篇文章能帮助到那些正在犹豫是否要尝试这项服务的朋友！如果有任何疑问或者经验分享，欢迎随时留言交流哦~
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
