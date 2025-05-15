@@ -26,6 +26,6 @@
 
 总之，无论你是出于工作需求还是个人兴趣，注册Line都是一件值得尝试的事情。只要你掌握了正确的方法，并做好充分准备，就能轻松跨越语言和地域的界限，与全球的朋友建立联系。希望本文能对你有所帮助，祝你早日开启属于自己的Line之旅！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)

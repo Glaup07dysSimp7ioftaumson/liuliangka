@@ -16,6 +16,6 @@
 
 最后，希望大家都能找到适合自己的方法，轻松愉快地享受互联网带来的便利与乐趣！如果你还有任何疑问或者经验分享，欢迎随时交流讨论哦～
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)
