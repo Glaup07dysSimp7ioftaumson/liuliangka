@@ -1,4 +1,4 @@
-# 英国旅游卡怎麽註冊telegram [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 英国旅游卡怎麽註冊telegram [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 如果你是一位即将前往英国旅行的朋友，或者已经在英国游玩的小伙伴，那么这篇文章可能会对你有所帮助。今天我们就来聊聊关于英国旅游卡以及如何注册Telegram这款风靡全球的即时通讯软件。
 
@@ -22,4 +22,4 @@
 
 总之，在英国期间充分利用好Telegram这款优秀的社交平台，不仅能帮助您更好地融入当地文化氛围，还能结识来自世界各地的新朋友呢！希望以上介绍对您有所帮助，如果您还有任何疑问的话，欢迎随时留言交流哦~
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
