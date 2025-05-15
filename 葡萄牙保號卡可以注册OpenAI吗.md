@@ -1,4 +1,4 @@
-**葡萄牙保号卡是否能用于注册OpenAI？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**葡萄牙保号卡是否能用于注册OpenAI？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好！今天咱们来聊聊一个非常有趣且实用的话题——葡萄牙的保号卡（Número de Identificação Fiscal，简称NIF）能否用来注册OpenAI。相信不少朋友对这个话题充满好奇，尤其是那些身处海外或者正在考虑使用OpenAI服务的人。那么，咱们就从头到尾好好梳理一下这个问题。
 
@@ -56,4 +56,4 @@ OpenAI的官方网站上并没有明确规定哪些国家的用户可以注册�
 
 最后，无论你是葡萄牙本地居民还是旅居海外的葡萄牙人，只要合理利用资源，就能顺利享受到OpenAI带来的便利和技术红利。希望这篇文章对你有所帮助！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
