@@ -1,4 +1,4 @@
-**荷兰远游卡可以注册Google吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**荷兰远游卡可以注册Google吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好，今天咱们聊聊一个很多人都关心的问题——荷兰远游卡能不能注册Google账户？这个问题看似简单，但背后其实涉及不少细节和背景知识。如果你对荷兰的生活、旅行或者技术问题感兴趣，这篇文章绝对值得一看。
 
@@ -20,4 +20,4 @@
 
 **总结一下：荷兰远游卡原则上是可以用来注册Google账户的，但需要满足一定条件并注意相关风险。希望大家都能顺利解决这个问题，享受美好的荷兰之旅！**
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
