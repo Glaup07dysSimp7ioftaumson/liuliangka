@@ -1,4 +1,4 @@
-**英国保号卡可以注册Google吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**英国保号卡可以注册Google吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今这个数字化时代，无论是生活还是工作，Google的服务几乎无处不在。从电子邮件到文档协作，从地图导航到视频分享，Google旗下的各种产品已经成为我们日常生活中不可或缺的一部分。然而，对于许多身处英国的朋友来说，一个问题常常困扰着他们：英国保号卡（National Insurance Number）是否能够用于注册Google账户呢？
 
@@ -16,4 +16,4 @@
 
 总之，英国保号卡虽然不能直接用来注册Google账户，但它却是维护个人合法权益、促进职业发展的重要工具之一。希望大家都能充分利用手中的资源，为自己创造更多的机会。同时也要记住，无论身处何地，保持积极向上的心态才是成功的关键所在。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
